@@ -12,3 +12,13 @@ Kegiatan INTRIVIA FILKOM 2026 menjadi pengalaman yang berkesan bagi saya sebagai
 Senang banget bisa menjadi bagian dari Cluster 19 di INTRIVIA FILKOM 2026! Kegiatannya seru, asik, dan menyenangkan, apalagi bisa kenal teman-teman baru dengan berbagai karakter yang bikin suasana jadi lebih hidup. Awalnya mungkin belum saling kenal, tetapi seiring berjalannya kegiatan, kebersamaan dan keseruan yang tercipta membuat pengalaman ini jadi berkesan banget.
 
 Semoga kebersamaan Cluster 19 nggak berhenti sampai INTRIVIA saja, tetapi terus berlanjut selama masa perkuliahan. Semoga kita bisa tetap kompak, saling membantu, dan menjadi teman yang saling mendukung dalam keadaan apa pun. Terima kasih untuk semua teman Cluster 19 yang sudah membuat pengalaman ini seru dan menyenangkan. Semoga kita bisa terus bertumbuh dan menciptakan lebih banyak kenangan bersama!
+
+## Harapan Kuliah
+1. Menjadi pribadi yang lebih disiplin, bertanggung jawab, dan mandiri.
+2. Memahami materi perkuliahan dengan baik serta mampu berpikir kritis dan menyelesaikan masalah.
+3. Memperdalam ilmu di bidang software development, artificial intelligence, dan teknologi.
+4. Mengembangkan proyek-proyek inovatif yang bermanfaat bagi masyarakat.
+5. Memperluas relasi, mendapatkan teman baru, dan bertumbuh bersama lingkungan yang positif.
+6. Aktif mengikuti organisasi, komunitas, kompetisi, dan kegiatan yang dapat mengembangkan kemampuan diri.
+7. Meraih prestasi akademik maupun nonakademik selama kuliah.
+8. Lulus tepat waktu dengan membawa ilmu, pengalaman, dan kontribusi yang bermakna.
